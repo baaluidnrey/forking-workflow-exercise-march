@@ -5,6 +5,7 @@
 
 - 2 avocados
 - 1 chili
+- 1 sugar
 - 1 lime
 - 1 tsp salt
 - 1/2 onion
